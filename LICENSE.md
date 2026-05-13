@@ -1,4 +1,4 @@
-
+Irina for macOS advanced Service: OCR-support & CPU-monitoring offers the most advanced Irina for macOS service, with OCR-support and CPU-monitoring. Ideal for macOS power users.
 
 
 
